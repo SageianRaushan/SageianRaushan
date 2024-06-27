@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SageianRaushan
+- 👋 Hi, I’m @Raushan_Raj
 - 👀 I’m interested in ...Coding
 - 🌱 I’m currently learning ...
 - 😄 Pronouns: ...Raushan
